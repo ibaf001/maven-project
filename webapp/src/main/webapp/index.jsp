@@ -1,1 +1,1 @@
-Hello, World!
+Mbote ba ndeko!
